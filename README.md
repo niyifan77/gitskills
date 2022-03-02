@@ -1,1 +1,6 @@
 # gitskills
+
+asfdasdfafdasdf
+
+
+asfdaf 
